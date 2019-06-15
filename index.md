@@ -1,4 +1,4 @@
-**Bold** and _Italic_ and `Code` text
+**Bold** and _Italic_
 
 ## Introduction:
 
@@ -81,8 +81,20 @@ Over the quarter, and within this major, we have studied the social impact digit
 
 I hope this reflects my feeling of hopefulness and empathy for others. Computers connect us, but they can also isolate us. We compare ourselves and feel the disconnection holding our phones as opposed to meeting up with someone in person. This magazine would provoke those emotions of inclusion and connection, and later bridge the gap with the pop-up workshops. With an abundance of resources, and human error and greed, this idea could be worldwide and applied in almost any festival setting. If I could do it differently, I would incorporate the goal of community clean up and non-profit projects. During the pop-ups, what does that particular community need and foster a drive to get work done and consolidate resources to better serve that particular area. It is a dream, and on a small scale the idea is just to create an artistic magazine with a personal, homemade, feel to it. On a grander scale, it would help people feel less alone.
 
-
-
-
-
 ## Works Cited:
+
+“The Age of Information - The International Typographic Style: Joseph Muller-Brockmann.” History of Graphic Design, 2018, http://www.historygraphicdesign.com/the-age-of-information/the-international-typographic-style/258-josef-mu-ller-brockmann. Accessed June 2019.
+
+“Alone and in Circumstance.” The Morgan Library and Museum, https://www.themorgan.org/exhibitions/online/emily-dickinson/16. Accessed June 2019.
+
+Golombisky, Kim and Hagen, Rebecca. White Space is Not Your Enemy, e-book, Elsevier, 2010.
+
+Hammond, Adam. “Digital Editions and the Complexity of Remediations.” Literature in the Digital Age: An Introduction, e-book, Cambridge, 2016.
+
+Morgan, Tiernan and Purje, Lauren. An Illustrated Guide to Guy Debord’s "The Society of the Spectacle”. August 10, 2016. https://hyperallergic.com/313435/an-illustrated-guide-to-guy-debords-the-society-of-the-spectacle/. Accessed June 2019.
+
+Protas, Allison. “Dictionary of Symbolism.” University of Michigan, 1997, http://umich.edu/~umfandsf/symbolismproject/symbolism.html/index.html. Accessed June 2019.
+
+Sanders, Julie. “What is Adaption?” Adaptation and Appropiation, e-book, Routledge, 2005. 
+
+Seo, Audrey. Ensō: Zen Circles of Enlightenment, e-book, Weatherhill, 2007. 
