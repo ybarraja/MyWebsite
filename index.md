@@ -1,5 +1,3 @@
-**Bold** and _Italic_
-
 ## Introduction:
 
 In week one, our assignment was to draw a symbol that was both abstract and personal to our culture and story. I drew an incomplete circle. At the time, I did not know the cultural significance of the symbol. To me, it represented a story about my life was not going the way I had imagined, and my personal trials being more difficult than I thought they would be. I had a simple outline of a life for myself. At my high school graduation, my imagined trajectory included college, internship, well paid job, financial freedom and the opportunity to travel the world. It was simple. However, responsibility and commitment were not words I had in my vocabulary. I dropped out of college after my first semester, became a caretaker, worked full time, and indignantly watched my peers live a life full of freedom. In comfort, and distraction, I abandoned the idea of returning to school, and accepted my role as person who would lament the life that could have been. 
